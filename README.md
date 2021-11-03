@@ -8,4 +8,3 @@ gingeropolous on libera irc and matrix
 and yes, a gmail account
 
 gingeropolous@gmail.com
-
