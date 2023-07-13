@@ -1,7 +1,7 @@
 # mycontactinfo
 a repo where i put my current contact info
 
-gingeropolous1@tutanota.com
+(i lost my tutanota account again)
 
 gingeropolous on libera irc and matrix
 
